@@ -1,6 +1,6 @@
 # Curriculum Vitae
 
-Personnal C.V. to date on November 2020.
+Personnal C.V. to date on January 2021.
 
 Made with Adobe Illustrator.
 
